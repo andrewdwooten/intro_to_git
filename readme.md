@@ -1,5 +1,7 @@
 It's going to snow today!!! Legit, for reals
 
-This is fun; love some snow
+This is fun; love snow
 
-This is awesome!
+This is so freaking awesome!
+
+It's effing cold outside.
